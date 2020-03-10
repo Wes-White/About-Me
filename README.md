@@ -1,1 +1,3 @@
 About Me
+
+Wesley White 
